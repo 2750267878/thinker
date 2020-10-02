@@ -1,0 +1,2 @@
+# thinker
+taller，faster，stronger
